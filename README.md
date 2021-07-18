@@ -1,2 +1,5 @@
 # hark_phyton
-Just another phyton
+Just another ᏢᎻᎽᏆᎾᏁ 
+ᎻᎥ ᎶᏌᎽᎦ ,
+ᎶᎬᎾᏞᎬX ᎻᎬᏒᎬ.Ꭵ ᏞᎥᏦᎬ ᏁᎾᎠᎬ ,ᏢᎻᎽᏆᎾᏁ 
+ᎪᏁᎠ Ꭵ ᎪᏞᎦᎾ ᎳᎪᏆᏟᎻ ᎷᎾᏉᎥᎬᎦ ,Ꭵ ᏞᎾᏉᎬ ᎷᏌᎦᎥᏟ 
